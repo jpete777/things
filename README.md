@@ -1,2 +1,2 @@
 # things
-I have no idea what I am doing.
+I'll probably just store random stuff I do here, but that stuff will be terrible.
